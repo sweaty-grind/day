@@ -17,3 +17,9 @@ so this war was always fought against the shark.  at the end of the day...  you 
 i'm tired. this game in the millions has too many fragile players.  sharkey is fragile too.  my ass is too. your ass all the time...  i wonder what you wanted from me sometimes...  we shouldn't be doing this i say.  you say we need more info. i tell you some crap.  you come back with more crap for me to learn.  and we all go round in a giant circle or what.
 
 so yeah we played million dollar slot machine.  sigh.  i wonder dude.  we do this thing with you you act like a cheapskate we can't move forward at all.  bask in the glory of the uniclops...  something like that.  it was fun...
+
+why do i get monees this way?? a tradeoff for another tradeoff by the time it gets to me.  at which point i wouldn't need your services anyways...  so it is what it is...
+
+i'm tired.  drank 4 monsters.  can't process much on here any more. i think my brain fatigued...  this is tiring bro. i can't handle your stupid oh la la secret plate shit okay???  sometimes i wonder you guys...  that uneven and unpaid debts makes you a worse character than not.  then i read some more and realized you did pay your dues.  and why do i still sit here like this with this mindset???  oh wait you literally are when the wall hits reality or reality hits the wall...
+
+could it be??  though...  that i am suffering because i am pressing myself too much...  i can't help but notice i could have helped something out but we dont do that and i wanted a job and we dont do that either.
