@@ -10,3 +10,10 @@ so anyways i figured that if i'm not playing games i should devote time to fixin
 
 maybe this is just concluding on its own.  no???  why not?? it looks perfectly fine from here.  so this costed you millions and stuff.  i wonder my friend.  you bleed from the brain as you read this.  that i literally have no idea what is left to be accomplished here.  stuff already settled..  its expensive making any changes.  i'm tired bro.  doors are closed for the night you know???
 
+sleepy time... 430am bro...  i think i've spoken to you for 5 years now...  hmmmm.  i swear i was waiting for something to finish before i proceed with the next steps...  i'm ready for the jump.  weeeeeee lalalalalala...  you know??  dumb ass shit.  something to do you know.  this backwater planet aint got shit going for it really.  what's the hold up mister alien???  doesn't it make funny when you ask it that way?? lol...  lost in translation lol...
+
+so you know...  a lot of this isn't my responsibilities or concern...  i dont know how to handle them...  your stuck up ness.  that's it bro.  i dont know anymore...  in my life, there is only me, you, the peoples...  that's how i see it...  nothing is above the other by virtue of defacto  or some shit...
+
+i wish every night i would get somewhere with you that's why i drink so many monsters. i feel we are behind on something interpersonal but yeah...  cancer lol...  ewwwww.
+
+dude your position is so pathetic i wonder what the heck you're doing to me...
